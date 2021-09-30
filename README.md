@@ -1,4 +1,4 @@
 # RedMochiMochi
 Hackathon Stuff
 
-Chi is retarded
+very sussy baka of you
